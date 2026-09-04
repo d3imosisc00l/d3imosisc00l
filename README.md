@@ -6,3 +6,6 @@
 ![i can draw lol](deimoslooksatmspaintmoobs.png)
 
 PS: I don't smoke irl
+also!!! This github is lowk mostly for PT, but I use it for other shenanigans too.
+
+FOR PONYTOWN: C+H anytime, will respond late sometimes. Feel free to interact even when I'm with my friends.
